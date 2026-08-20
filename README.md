@@ -33,7 +33,7 @@
 
 ## 📫 找到我
 - GitHub：[HeNN7dec](https://github.com/HeNN7dec)
-- 邮箱：你的邮箱@qq.com
+- 邮箱：3312969122@qq.com
 
 ---
 
